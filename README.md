@@ -1,3 +1,1 @@
-I'm luch4736
-
-Python,C#
+壹鈊殘念
